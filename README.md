@@ -1,1 +1,0 @@
-# TrashScan_Project
